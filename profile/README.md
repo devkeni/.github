@@ -4,7 +4,7 @@
 
 <br>
 
-### ✨ Software Engineer | 🎨 Creative Technologist
+### ✨ Software Engineer | Creative Technologist 🎨
 
 <br>
 
