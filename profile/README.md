@@ -4,7 +4,7 @@
 
 <br>
 
-### ✨ Full Stack Developer | 🎨 Creative Technologist | 🤖 AI-Enhanced Developer
+### ✨ Software Engineer | 🎨 Creative Technologist
 
 <br>
 
